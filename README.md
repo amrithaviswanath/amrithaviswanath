@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @amrithaviswanath
+- 👀 I’m interested in learning new things each day
+- 🌱 I’m currently in my final year B.come Banking Management from Ethiraj College for Women 
+- 💞️ I have a keen interest in learning beyond books and actually gaining knowledge from the corporate world itself. 
+- 📫 amrithaviswantha00@gmail.com 
